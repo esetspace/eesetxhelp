@@ -1,4 +1,5 @@
-# Documentation to install vipre using product key already purchased for new users.
+# How to Install ESET on a New Computer with a License Key or Activation Code (NOD32, Smart Security & More)
 
-My first project, i am so happy. Yippie
+Valuable information for the users.
+
 
