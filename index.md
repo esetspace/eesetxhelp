@@ -1,6 +1,7 @@
-# Index of Project to Install ESET on a New Computer with a License Key (NOD32, Smart Security & More)
+# Index of USER Project to Iἡstằḽḽ ESET on a New Computer with a ḽicẽnsẽ Kẽy (NOD32, Smart Security & More)
 
 Valuable information for the new users.
+
 
 
 
